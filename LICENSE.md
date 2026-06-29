@@ -1,4 +1,4 @@
-
+steal a brainrot Scripts no-ban is the best steal a brainrot Script, featuring silent aim and undetectable. Safe and powerful for all your needs.
 
 
 
